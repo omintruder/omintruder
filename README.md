@@ -1,4 +1,4 @@
-first year student at [IUM](https://old.mccme.ru/ium/english/index.html), second year student at HSE-NES joint program in economics. 
+first year student at [IUM](https://old.mccme.ru/ium/english/index.html), second year student at [HSE-NES joint program in economics](https://www.hse.ru/en/ba/nes/). 
 You can reach me at msmirnov@nes.ru and t.me/kakoyvostorg.
 Eveything uploaded at this page is free for a fair use under MIT license. 
 
